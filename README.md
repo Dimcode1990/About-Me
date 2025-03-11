@@ -1,6 +1,6 @@
 # Немного о себе
 
-![](https://pin.it/53hlhRNJc)
+![](https://i.pinimg.com/originals/82/62/2b/82622b158e1740e92694233c037625a9.png)
 
 #### Кто я?
 
